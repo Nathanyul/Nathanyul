@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Nathanyul
 - 👀 I’m interested in gaming, basketball, spending time with my friends!
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning anything I find interest in :D
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I would love to learn japanese :)
 
